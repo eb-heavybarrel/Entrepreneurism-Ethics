@@ -1,1 +1,1 @@
-# Entrepreneurial-Strategy
+# Entrepreneurism & Ethics
